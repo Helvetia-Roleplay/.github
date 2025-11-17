@@ -20,10 +20,9 @@ Envie de vivre une expérience roleplay unique ? Rejoignez notre communauté dè
 
 ### Comment nous rejoindre ?
 
-1. 📱 Rejoignez notre [serveur Discord](https://discord.gg/helvetia-rp)
+1. 📱 Rejoignez notre [serveur Discord](https://discord.gg/dfBFT959Ey)
 2. 📖 Lisez le règlement et la présentation
-3. ✍️ Rédigez votre candidature
-4. 🎉 Commencez votre aventure sur Helvetia !
+3. 🎉 Commencez votre aventure sur Helvetia !
 
 ## 📚 Nos Ressources
 
@@ -34,8 +33,7 @@ Envie de vivre une expérience roleplay unique ? Rejoignez notre communauté dè
 ## 🤝 Nous Contacter
 
 Pour toute question ou suggestion :
-- 💬 Discord : [Helvetia Roleplay](https://discord.gg/helvetia-rp)
-- 📧 Email : contact@helvetia-rp.com
+- 💬 Discord : [Helvetia Roleplay](https://discord.gg/dfBFT959Ey)
 
 ---
 
