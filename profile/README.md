@@ -1,6 +1,6 @@
 # 🇨🇭 Bienvenue sur Helvetia Roleplay
 
-[![Discord](https://img.shields.io/badge/Discord-Rejoindre-7289DA?style=for-the-badge&logo=discord&logoColor=white)](https://discord.gg/helvetia-rp)
+[![Discord](https://img.shields.io/badge/Discord-Rejoindre-7289DA?style=for-the-badge&logo=discord&logoColor=white)](https://discord.gg/dfBFT959Ey)
 
 ## 🎮 Qui sommes-nous ?
 
