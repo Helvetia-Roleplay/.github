@@ -38,5 +38,5 @@ Pour toute question ou suggestion :
 ---
 
 <div align="center">
-  <sub>Fait avec ❤️ par la communauté Helvetia Roleplay</sub>
+  <sub>Fait avec ❤️ par l'équipe de Helvetia Roleplay</sub>
 </div>
